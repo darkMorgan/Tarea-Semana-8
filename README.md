@@ -12,7 +12,7 @@ Depende del momento, pero muchas veces **me callo al principio y acumulo**, hast
 Me siento **cansado, frustrado** y a veces **culpable**, especialmente si digo cosas que no quería o si lastimo a alguien. También me cuesta concentrarme y mantener el enfoque.
 
 ### 🌈 ¿Qué persona admiro por cómo resuelve conflictos y por qué?
-Admiro a **mi mejor amigo/a** porque sabe mantener la calma, escucha antes de responder y siempre busca soluciones sin culpar. Me inspira porque demuestra que se puede discutir sin pelear ni herir.
+Admiro a **mi mejor amigo** porque sabe mantener la calma, escucha antes de responder y siempre busca soluciones sin culpar. Me inspira porque demuestra que se puede discutir sin pelear ni herir.
 
 ---
 
